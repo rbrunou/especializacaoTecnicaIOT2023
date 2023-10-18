@@ -1,0 +1,1 @@
+# especializacaoTecnicaIOT2023
